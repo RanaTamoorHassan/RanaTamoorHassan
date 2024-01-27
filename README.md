@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RanaTamoorHassan
 - 👀 I’m interested in FDO / Research development / Electrical Engineer / Real estate / HR / Sales Coordinator /
 - 🌱 I’m currently learning SQl / Python / Coding / R / Trading / 
-- 💞️ I’m looking to collaborate on  FDO / Research development / Electrical Engineer / Real estate / HR / Sales Coordinator /
+- 💞️ I’m looking to collaborate on  FDO / Research development / Electrical Engineer / Real estate / HR / Sales Coordinator / 
 - 📫 How to reach me ranatamoor919@icloud.com or +923454753919
 - 😄 Pronouns: Tamoor
 
